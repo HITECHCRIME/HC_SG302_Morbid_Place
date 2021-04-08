@@ -23,10 +23,10 @@ Description.
 
 ```
 people make me sway into my morbid place
-on the edge of a blade sliced off 
-from my beaten path to the end
-i told myself don't go that's okay
-it's time to get back
+on the edge of a blade marks of blood (drops)
+sliced off from my beaten path to the end
+i told myself don't go so up coz that's okay
+it's time to get it back
 
 With Empty words inside the smoke they disintegrate
 Take away all of the pain with an early grave,
