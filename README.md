@@ -26,7 +26,7 @@ people make me sway into my morbid place
 on the edge of a blade marks of blood (drops)
 sliced off from my beaten path to the end
 i told myself don't go so up coz that's okay
-it's time to get it back (and I never will be sane)
+it's time to get it back (and I never will be sane) I never will be blamed
 
 With Empty words inside the smoke they disintegrate
 Take away all of the pain with an early grave,
