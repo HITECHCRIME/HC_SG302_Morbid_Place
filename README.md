@@ -23,19 +23,41 @@ Description.
 
 ```
 people make me sway into my morbid place
-on the edge of a blade marks of blood (drops)
+on the edge of the blade marks of blood
 sliced off from my beaten path to the end
 i told myself don't go so up coz that's okay
-it's time to get it back (and I never will be sane) I never will be blamed
+it's time to get it back
 
-With Empty words inside the smoke they disintegrate
-Take away all of the pain with an early grave,
-Slowly fade through the brighter days I'll be at the gates
-Don't wait for the weeks I'm gone
-I'm a mess i get worse as the time goes on
-Pass by to the great unknown been trash let go goodnight won't mourn
+xxxxxxx feigning's 
+been in the right
+stacking on life's truth scarce
+so make it count 
+hope it better arrived
 
-make your time
+say can't take it 
+any day focus on the touchdown 
+better on countdown
+so lone so long
+
+people make me sway into my morbid place
+on the edge of a blade marks of blood
+sliced off from my beaten path to the end
+i told myself don't go so up coz that's okay
+it's time to get it back
+
+give it back
+give it back
+give it back
+give it back
+give it back
+give it back
+
+people make me sway into middle of my morbid place
+on the edge of a blade marks of blood
+sliced off from my beaten path to the end
+i told myself don't go so up coz that's okay
+it's time to get it back and I never will be blamed
+
 
 
 ```
